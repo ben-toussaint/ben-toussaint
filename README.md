@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **mbentoussaint@gmail.com**
 
-  **“If you can dream it, you can do it.” -- Walt Disney**
+  **“If you can dream it, so can you do it.” -- Walt Disney**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
